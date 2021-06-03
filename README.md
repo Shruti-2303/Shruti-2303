@@ -1,4 +1,4 @@
-[![MasterHead](https://www.canva.com/design/DAEgUBO1LS8/view)]
+![MasterHead](https://i.ibb.co/zr4FTxJ/Purple-and-Pink-Organic-and-Handcrafted-Welcome-Message-Elementary-Back-to-School-Banner.jpg)
 
 <h1 align="center">Hi 👋, I'm Shruti Sharma</h1>
 <h3 align="center">A passionate learner</h3>
